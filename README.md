@@ -1,4 +1,4 @@
-# Carolyn Stransky
+# Mariah Rogers
 
 _Data and analytics engineer based in Southern California 🏖🍊_ <br>
 
